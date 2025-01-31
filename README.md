@@ -1,0 +1,1 @@
+Ja, Adrian Gargula zobowiązuję się do pochłonięcia całej wiedzy która znajduję się w powyższym dokumencie, aby na koniec semestru Pani dr inż. Plichta Stanisława uścisnęła mi dłoń i pogratulowała uczciwego zdania egzaminu poprawkowego.
