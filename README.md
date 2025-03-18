@@ -2,4 +2,4 @@ Ja, Adrian Gargula zobowiązuję się do pochłonięcia całej wiedzy która zna
 
 EDIT!
 
-Ja i Arek skutecznie podołaliśmy a Pani dr inż. Plichta Stanisława wywaliła ukraińca (😎👍). Co do pytań to tylko 2 na 6 pojawiły się na egzaminie xDDDDDDDDD
+Ja i Arek skutecznie podołaliśmy a Pani dr inż. Plichta Stanisława uwaliła ukraińca (😎👍). Co do pytań to tylko 2 na 6 pojawiły się na egzaminie xDDDDDDDDD
